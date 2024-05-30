@@ -1,5 +1,8 @@
 # soft-skill
 
+technology
+https://youtube.com/shorts/-NiYclXgb1M?si=74Pu4Op-_DfKRMQP
+
 linkedin profile
 https://www.linkedin.com/in/gopal-kushwaha-21959930b
 
