@@ -12,3 +12,8 @@ https://drive.google.com/file/d/1eu01gb1nfhSUWuDQfdvhEsgO6NMUdVyr/view?usp=drive
 
 Confidence Building (Activity Session) - Language Barrier , Impromptu Speech - It Policies Briefing
 https://docs.google.com/presentation/d/1TpB0pP-E1pivf0m5j09kb-WrS3AdzbQZ/edit?usp=drivesdk&ouid=102652877633019618517&rtpof=true&sd=true
+
+Project
+https://youtube.com/shorts/VRLPAWgTcBs?si=qxSASb_mNYQyUraa
+
+
